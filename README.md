@@ -1,4 +1,4 @@
-### Hi there 👋
+### Hello My name is Kim Min Chan.
 
 <!--
 **kmckmc5587/kmckmc5587** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
